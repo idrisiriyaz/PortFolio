@@ -1,4 +1,4 @@
-can u see this website check this url www.idrisiriyaz.tk
+can u see this website check this URL:https://www.idrisiriyaz.tk
 
 Thanks for downloading this template!
 
